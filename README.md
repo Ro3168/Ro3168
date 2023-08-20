@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ro3168
 - 👀 I’m interested in doing thigs with people
 - 🌱 I’m currently learning how to use code
-- 💞️ I’m looking to collaborate on youtube or to do code
+- 💞️ I’m looking to collaborate on youtube or to do code or to make music
 - 📫 How to reach me at robusiness3168@gmail.com
 - 📽️ My youtube https://www.youtube.com/@ro3168
